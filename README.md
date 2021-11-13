@@ -17,4 +17,6 @@ Here are some ideas to get you started:
 
 ### Fiverr Profile
 
+[Whatsapp](https://wa.me/+923106979155)
+
 https://www.fiverr.com/noumanmah
